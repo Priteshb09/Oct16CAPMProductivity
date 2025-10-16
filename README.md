@@ -1,1 +1,0 @@
-# Oct16CAPMProductivity
